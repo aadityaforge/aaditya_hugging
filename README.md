@@ -1,1 +1,1 @@
-# ayushmaan_ai_training
+# aaditya_ai_training
